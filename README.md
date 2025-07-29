@@ -1,5 +1,3 @@
-# heart
-
 hello hello .. this is gonna be so boring lol
 
 call me junkil, heart, or mind
@@ -23,4 +21,5 @@ my fandoms are: (☆ = main)
 
 
 also im like super boring im sorry :(
+
 im a bit of a loner on ponytown :P soooo uh yeah come say hi i try not to bite
