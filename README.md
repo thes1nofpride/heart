@@ -20,3 +20,7 @@ my fandoms are: (☆ = main)
 • forsaken
 
 • tally hall/miracle musical ☆
+
+
+also im like super boring im sorry :(
+im a bit of a loner on ponytown :P soooo uh yeah come say hi i try not to bite
