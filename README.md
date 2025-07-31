@@ -19,7 +19,4 @@ my fandoms are: (☆ = main)
 
 • tally hall/miracle musical ☆
 
-
-also im like super boring im sorry :(
-
-im a bit of a loner on ponytown :P soooo uh yeah come say hi i try not to bite
+byi + int on my (wip) strawpage, i dont have much of a dni besides basic criteria
